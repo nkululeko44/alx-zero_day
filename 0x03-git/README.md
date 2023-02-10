@@ -1,1 +1,0 @@
-we do hard things
